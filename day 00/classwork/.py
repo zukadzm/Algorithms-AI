@@ -1,1 +1,1 @@
-# არაფერი არ გვქონია
+# NO CLASSWORK = არ გვქონია classwork
